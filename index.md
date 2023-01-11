@@ -6,4 +6,4 @@ Besides this, I also encorporate wild animals, birds, abstract objects, still li
 
 **Work.** Check out my work over past 4 years [here]().
 
-**Contact.** Reach out to me for painting classes via [Instagram](https://instagram.com/neeruartclass) profile.
+**Contact.** Reach out to me for painting classes via [Instagram](https://instagram.com/neeruartcreation) profile.
